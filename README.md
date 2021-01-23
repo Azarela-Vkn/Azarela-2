@@ -12,7 +12,4 @@ If you can help me to translate the bot language please chat me in whatsapp
 |-----------------|
 
 My whatsapp
-wa.me/6282334297175
-
-My Instagram
-https://Instagram.com/affis_saputro123
+wa.me/6289652574706
